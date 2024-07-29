@@ -1,0 +1,1 @@
+# Mohirdev_Praktikum_amaliyotlar
